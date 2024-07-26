@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ArtemDenisuk
-- 👀 I’m interested in fotball
+- 👀 I’m interested in football
 - 🌱 I’m student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
